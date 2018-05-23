@@ -1,2 +1,0 @@
-helfflo
-salamo qaaqw
